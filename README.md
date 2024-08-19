@@ -4,5 +4,5 @@ Meu nome é paulo
 - Utilizo esse espaço para minha organização e
 compartilhamento dos meus projetos desenvolvidos
 
-![](![image](https://github.com/user-attachments/assets/1c791e75-e6f4-43db-a9ac-77d676ab0c47)
+![](https://media1.tenor.com/m/oSnS7Oa4K3MAAAAd/my-way-hit-single-real.gif)
 
